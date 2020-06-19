@@ -1,1 +1,1 @@
-# Chaeyejin_Sejong
+# Capstone_Sejong
